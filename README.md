@@ -18,6 +18,8 @@ Usᴇ ᴛᴏɴᴇ ᴛᴀɢs.
 
 I Pʀᴏᴍɪsᴇ I'ᴍ ʀᴇᴀʟʟʏ ғʀɪᴇɴᴅʟʏ ᴀɴᴅ ғᴜɴɴʏ !! Tʀᴜsᴛ !
 
+The best father in the whole word ! @hexcorez
+
 ╰┈➤
 
 I ᴀᴍ ᴄᴜʀʀᴇɴᴛʟʏ ᴋɪɴɴɪɴɢ Nᴏʙʟᴇ Sɪx
